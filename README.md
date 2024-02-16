@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **- dipanshi.diwakar765@gmail.com**
 
-- ⚡ Hobbies **are Dancing , Listening music.**
+- ⚡ Hobbies **are Listening music.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
